@@ -1,0 +1,2 @@
+push ups
+pull ups
